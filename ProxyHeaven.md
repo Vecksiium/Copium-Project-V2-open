@@ -14,3 +14,5 @@ Making of proxies is being done now!
 (this is a lot for one school district to have floating around)
 
 Should be getting help to make sure none of them get blocked before the release date!
+
+having trouble hosting them, grrrr! - 10/24/24
